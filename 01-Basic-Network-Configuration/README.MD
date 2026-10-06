@@ -1,1 +1,2 @@
-
+BASIC NETWORK CONFIGURATION
+Link Youtube : https://youtu.be/BTBFOZ738r8
